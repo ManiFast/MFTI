@@ -1,1 +1,1 @@
-# Lessons in MFTI )
+# Lessons in MIPT)
